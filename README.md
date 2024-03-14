@@ -4,7 +4,7 @@
 
 ✍️My passion lies in creating the best and the most accessible type of documentation for the end users.📝
 
-:key:Communication is the key to overcome any hurdle/gap- I live by this mantra in both my personal professional life.
+:key:Communication is the key to overcome any hurdle/gap- I live by this mantra in both my personal & professional life.
 
 :woman_teacher: When I'm not playing with words, I volunteer to teach Punjabi to middle and high schoolers at Punjabi School Bothell- Yes I've got B.Ed degree and now finally putting it to good use!:smiley::pencil2:
 
